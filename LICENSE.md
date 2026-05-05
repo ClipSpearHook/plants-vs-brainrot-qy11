@@ -1,4 +1,4 @@
-
+Experience plants vs brainrots like never before with best plants vs brainrots Script, the #1 Script. Includes auto-heal and one-hit kill for
 
 
 
